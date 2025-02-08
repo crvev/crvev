@@ -2,4 +2,4 @@
 
 never making a strawpage for as long as i live. i'm an adult i'm a proshipper and i love JOY
 
-my interests include scp, ultrakill, smile for me, house md, mouthwashing, desperate housewives, biology, genetics, animals (mostly cats) and my pals
+my interests include scp, ultrakill, smile for me, house md, mouthwashing, desperate housewives, transformice, biology, genetics, animals (mostly cats) and my pals. usually on here with one or both of them but come talk to me or sit with me idgaf!
